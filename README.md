@@ -1,4 +1,4 @@
-- 👋 Hi, I’m restrung69
+- 👋 Hi, I’m restrung
 - 👀 I’m interested in stuff
 - 🌱 I’m not currently learning ...
 - 📫 Yes
